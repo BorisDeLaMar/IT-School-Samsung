@@ -1,1 +1,1 @@
-# First
+# IT School Samsung
